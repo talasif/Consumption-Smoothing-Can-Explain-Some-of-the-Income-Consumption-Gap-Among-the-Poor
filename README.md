@@ -1,1 +1,0 @@
-# Consumption-Smoothing-Can-Explain-Some-of-the-Income-Consumption-Gap-Among-the-Poor
